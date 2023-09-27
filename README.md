@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @riskirismawann
 - 👀 I’m interested in Business Manajemen and Administration
-- 🌱 I’m currently learning Majoring Commerce Administration in College of Administration Science YPPT Tasikmalaya
+- 🌱 I’m currently learning in Majoring Commerce Administration 
 - 💞️ I’m looking to collaborate on Expanding the network
 - 📫 How to reach me with email account riskirismaw@gmail.com
 
